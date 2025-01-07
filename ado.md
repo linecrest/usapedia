@@ -1,3 +1,0 @@
-# ADO
-
-Antarctic Grade Diesel
